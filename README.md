@@ -1,17 +1,30 @@
 
-<img align="left" img width="240" height="345" alt="Untitled349" src="https://github.com/user-attachments/assets/4161abbe-e145-4253-93bf-17e7b7b81315" /> 
 
-<img align="center" img width="511" height="112" alt="chain" src="https://github.com/user-attachments/assets/96c67a10-1139-4590-9e34-aaf0a2bfc162" />
-<img align="right" img width="215" height="241" alt="Untitled349 (1)" src="https://github.com/user-attachments/assets/bbb2ef50-258c-4d07-ba91-cea0510a01bc" /> 
+<div align="center">
+  
+  ![](https://komarev.com/ghpvc/?username=RAT-BASEDWARFARE&color=blueviolet&label=YOU+WILL+LOVE+EACH+OTHER)
+</div>
 
-eden *or* eve  ── .✦ 9teen ✦ ***-15 DO NOT INTERACT*** 
+<div align="center">
+<img width="20" height="20" alt="e865d1b0" src="https://github.com/user-attachments/assets/256ffa74-5212-4164-93c2-2babaef1115e" />
+</div>
 
-<ins> mentally unstable, *please interact with caution.* </ins> ✦ i block freely.
+<div align="center">
+  
+`eden or doe :: 19 :: always interact w/ care, minors -15 DO NOT INTERACT.`
 
-if you're coming from ponytown, inspo from my ponies are okay. usually hanging with friends/music/valve area on safe server. i get nervous w interactions!
+</div>
 
-[tumblr](https://www.tumblr.com/misanthrdoephy) ⊹ [strawpage](https://childrenofthedevolution.straw.page) ⊹ [atabook](https://childrenofthedevolution.atabook.org)
+<div align="center">
+<img width="664" height="224" alt="healthbnnr" src="https://github.com/user-attachments/assets/0d1b6a2e-9b26-49b1-8bed-79792569c6e6" />
+</div>
 
-<sup> *it's a parasite eve.* </sup> <sup> *got a feeling in your stomach, 'cause you know that it's coming for ya..* </sup>
+<div align="center">
 
-<img align="center" img width="511" height="112" alt="chain" src="https://github.com/user-attachments/assets/96c67a10-1139-4590-9e34-aaf0a2bfc162" />
+[tumblr](https://www.tumblr.com/misanthrdoephy) <img width="20" height="20" alt="f63fd80d" src="https://github.com/user-attachments/assets/73d90cbf-a318-42c9-b507-51c728c2e8fd" />
+ [strawpage](https://childrenofthedevolution.straw.page) <img width="20" height="20" alt="f63fd80d" src="https://github.com/user-attachments/assets/73d90cbf-a318-42c9-b507-51c728c2e8fd" /> [atabook](https://ratbasedwarfare.atabook.org/)
+</div>
+
+<div align="center">
+  <img width="150" height="20" alt="tumblr_ccc732d012618b8ecfdd3d28379451ae_4baaafdf_250" src="https://github.com/user-attachments/assets/2dca0bbb-c8db-4721-94ba-5f3022a7266d" />
+</div>
